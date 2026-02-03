@@ -1,1 +1,0 @@
-# actividad-github-Jose-Manuel-Rubio-Manuel
